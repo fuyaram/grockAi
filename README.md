@@ -1,0 +1,6 @@
+# grockAi![grockai](https://github.com/fuyaram/grockAi/assets/143484868/92df9624-6933-4f49-bd4f-8b7e98a4f5ec)
+![grockai2](https://github.com/fuyaram/grockAi/assets/143484868/e941fb7e-7818-42f9-ad8a-0a9af6861f16)
+![grockai3](https://github.com/fuyaram/grockAi/assets/143484868/56288826-8ae0-47a5-8eda-5ee59f9ba070)
+![grockai4](https://github.com/fuyaram/grockAi/assets/143484868/eaf652fa-13ff-4169-82f0-a8cff2200285)
+![grockai6](https://github.com/fuyaram/grockAi/assets/143484868/50717618-bf29-4a2b-87ba-04f1739ca65b)
+![grockai7](https://github.com/fuyaram/grockAi/assets/143484868/9ca9ce29-e3eb-4eb1-9c8d-21d55d7a3506)
